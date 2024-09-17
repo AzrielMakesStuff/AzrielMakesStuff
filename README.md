@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AzrielMakesStuff
+- 👀 I’m interested in Development
+- 🌱 I’m currently learning Information Technologies
+- 📫 How to reach me azrieldied@gmail.com
+- 😄 Pronouns: Male
